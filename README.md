@@ -1,0 +1,2 @@
+# BERDIKARI
+berdiri dikaki sendiri
